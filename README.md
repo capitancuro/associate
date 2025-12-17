@@ -1,2 +1,2 @@
 # associate
-2 years worth of education
+2 years of education
